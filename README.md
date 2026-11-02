@@ -13,4 +13,4 @@ Defund the billionaires. 700 in America own half of EVERYTHING in America. What 
 wrong with US? Since Reagan, laws work for corporations and the wealthy. No one else.
 Gandhi, Tesla and Musk. Fuck you!
 
-Making money does not make a person good, nor smart, nor right.
+Making money does not make a person good. Definately not smarter. And rarely correct.
